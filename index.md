@@ -10,3 +10,5 @@ Der Tod der Menschen auf der Scheibenwelt hat einen Job, den man vieleicht nicht
 * treu
 
 > Und was wären die Menschen ohne Liebe? – Selten
+
+<img src="https://live.staticflickr.com/2605/3902365058_219cdece9b_c.jpg"/>
