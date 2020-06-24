@@ -9,4 +9,4 @@ Der Tod der Menschen auf der Scheibenwelt hat einen Job, den man vieleicht nicht
 * akribisch
 * treu
 
-> Und was wären die Menschen ohne Liebe? – Selten.
+Und was wären die Menschen ohne Liebe? – Selten.
