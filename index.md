@@ -8,3 +8,5 @@ Der Tod der Menschen auf der Scheibenwelt hat einen Job, den man vieleicht nicht
 * pedantisch
 * akribisch
 * treu
+
+> „Und was wären die Menschen ohne Liebe?“ – „Selten“
